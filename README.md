@@ -1,1 +1,3 @@
 Soil-Science.info on Flickr (USDA Natural Resources Conservation Service), CC BY 2.0 <https://creativecommons.org/licenses/by/2.0>, via Wikimedia Commons
+Dietmar Rabich / Wikimedia Commons / “Dülmen, Kirchspiel, Börnste, Neusträßer Graben -- 2022 -- 9891” / CC BY-SA 4.0For print products: Dietmar Rabich / https://commons.wikimedia.org/wiki/File:D%C3%BClmen,_Kirchspiel,_B%C3%B6rnste,_Neustr%C3%A4%C3%9Fer_Graben_--_2022_--_9891.jpg / https://creativecommons.org/licenses/by-sa/4.0/- Alternatively: Dietmar Rabich / https://w.wiki/9AYa / https://creativecommons.org/licenses/by-sa/4.0/https://w.wiki/9AYa, https://w.wiki/_tsVT (Shortlink)
+Daniel Schwen, CC BY-SA 2.5 <https://creativecommons.org/licenses/by-sa/2.5>, via Wikimedia Commons
